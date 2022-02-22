@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @GR4990
+- 👀 I’m interested in NFT
+- 🌱 I’m currently learning everything, I just know that I don't know
